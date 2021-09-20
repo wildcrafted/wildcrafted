@@ -1,6 +1,6 @@
 * 🪴 Hello, I'm Greta. 
 * 🌈 My pronouns are she/they.
-* 🎓 I'm currently learning front end development via Codecademy and Udemy.
+* 🎓 I'm currently learning front end development.
 * 🐙 Web development is career #3.
 * 💼 My previous careers were in 🧘complementary health and 🦋urban conservation.
 * 🗺 Available for 100% remote work beginning in early 2022.
