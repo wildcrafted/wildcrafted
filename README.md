@@ -5,5 +5,5 @@
 * 💼 My previous careers were in 🧘complementary health and 🦋urban conservation.
 * 💻 Strongly interested in pro bono collaborations pertaining to environment, human & animal rights, and public health.
 * 🗺 Available for 100% remote work beginning in early 2022.
-* 🇲🇽 Se habla Español. (¡Mas o menos!)
+* 🇲🇽 Yo hablo Español. (¡Mas o menos!)
 * 📬 You can reach me at greta@humanoid.net
